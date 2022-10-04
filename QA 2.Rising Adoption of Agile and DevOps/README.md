@@ -1,1 +1,0 @@
-# Rising Adoption of Agile and DevOps
